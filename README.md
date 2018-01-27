@@ -1,0 +1,2 @@
+# quantself
+QUANT HUMANIST CLASS
